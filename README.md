@@ -1,1 +1,1 @@
-# get rekt in french is now officially étre rèke!!!!!!
+# get rekt in french is now officially être rèke!!!!!!
