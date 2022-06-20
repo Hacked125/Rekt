@@ -1,2 +1,2 @@
 # get rekt in french is now officially être rèke!!!!!!
-also Aiza get rekt
+also get rekt HHAHAHAHHAHAHAHAHAHAHHAHAHAH GET REKT L BOZO+RATIO+LMAO+ROFL+BRUH+SO FUNNY OMG+LOL
